@@ -1,2 +1,2 @@
-# guxiuguanxiang
+古宿观象
 中国古代星官体系
